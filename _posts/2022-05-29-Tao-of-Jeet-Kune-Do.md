@@ -1,0 +1,21 @@
+# Tao of Jeet Kune Do 
+## Notes
+- Để chuyển hóa karma(nghiệp lực) ta phải sử dụng tâm và ý chí
+- Sai lầm khi nhận định về một cá thể là riêng biệt hoàn toàn khỏi mọi người, là khác và không thuộc về mọi người
+- Để bản thân trở về như một con búp bê bằng gỗ: nó không có cái tôi, không chấp hay vương vấn với những khái niệm. Hãy để cơ thể hoạt động như nó thường hoạt động
+- Mọi thứ bên trong như thế nào sẽ bộc lộ ra ngoài như thế đấy, nếu tâm của bạn còn chấp và vướng thì bạn sẽ hành động chấp và vướng, nếu tâm của bạn thả lỏng không có gì thay đổi được (tâm trống và định) thì cơ thể hoạt động như nước, trong trẻo như mặt nước.
+- Câu này hay nên mình sẽ không nói gì và để đây “Nothingness cannot be defined, the softest thing cannot be snapped”
+- Khi làm một việc gì đó thì phải chánh niệm, không phải tay chân làm mà tâm thì vớ vẩn xa vời với thực tại, mà là thực sự chìm vào hoạt động, nhận biết được chuyển động 
+- Một dòng năng lượng tập trung làm một thứ mà không bị phân tán
+- Làm một việc không phải là làm để hoàn thành mà là làm vì mình thích làm “there is no actor but the action; there is no experiencer but the experience”
+- Ta tự do khi ta nhìn sự vật như nó là, không đẹp không xấu không sai không đúng, chỉ có “nó”
+- Đừng cố chối bỏ sự xấu xa, tối tâm của bản thân mà hãy nhìn nó nhận biết được nó và bầu bạn với nó, để rồi ta lái qua nó
+- “eat your food, move your bowels, pass water and, when you’re tired, go and lie down”
+- Để được tự do, ta phải giết chết ngày hôm qua, những gì ngày hôm qua là hôm qua, ta ở đây và chỉ ở đây.
+- Mọi thứ đều là vô thường, nghĩa là đẹp rồi sẽ tàn, xấu rồi cũng ra đi, đá cũng mòn, sóng biển rồi cũng sẽ lặn. Vậy tại sao ta phải chấp và vướng vào mọi thứ “à nó xấu nên tôi thấy phiền”. 
+- Mọi vật rồi cũng sẽ biến đổi, di chuyển không ngừng và ta cũng nên di chuyển cùng nó, vướng là “đứng lại”, tự đứng rồi tự than khổ
+- Để hiểu được bản thân thì ta trải qua quá trình đó cùng với mọi người, tương tác với mọi người. Không phải là cách biệt một mình “to know oneself is to study oneself in action with another person”
+- Sự hoàn hảo không được tìm thấy nơi có hình dáng mà nó ở bên trong tâm và tỏa sáng ra bên ngoài
+- Sự đơn giản là khoảng cách ngắn nhất giữa hai điểm, để tiếp cận vấn đề một cách trực tiếp thì chỉ có đơn giản 
+- Đưa tâm trí vào sự tập trung và phát lên để có thể nhìn nhận vấn đề một cách nhạy bén, ngay lập tức, ở khắp mọi nơi. Giải phóng tâm trí ra những thói quen cũ, định kiến, những suy nghĩ hạn hẹp, và ngay cả những suy nghĩ bình thường
+- Trở thành một cái cốc rỗng không phải là “rỗng” mà là “trọn đầy”, dẹp bỏ nước ra khỏi nó để ta là gì cũng được
